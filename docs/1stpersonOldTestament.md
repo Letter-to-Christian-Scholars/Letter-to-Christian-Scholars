@@ -8,7 +8,7 @@ What can we believe from the Old Testament
 
 ## Why this is important to me:
 
-In my mind, to believe in Jesus requires believing the Old Testament. There are many stories that are central to Christianity, the 12 Tribes of Israel, the creation story, and journeys of Moses come to mind first. Also, many of the core Christian tenants are defined in the Old Testament such as the 10 Commandments and tithing
+In my mind, to believe in Jesus requires believing the Old Testament. There are many stories that are central to Christianity like the 12 Tribes of Israel, the creation story, and journeys of Moses. Also many of the core Christian tenants are defined in the Old Testament such as the 10 Commandments and tithing
 
 The most important of items established in the Old Testament is the prophecy of a Savior. In my mind it is the key reason to believe in Jesus. He was fulfilling prophecy
 
@@ -16,11 +16,14 @@ The most important of items established in the Old Testament is the prophecy of 
 
 ## Ancient Manuscript Dating
 
-
 Dating texts cross-references many techniques to check the results of each. Carbon Dating is one method but not the only method. Experts also look at inconsistency in some arrangement, especially a juxtaposition of persons, events, objects, language terms and customs from different time periods
 
 A good example of this is  text handwriting clues such as fonts that did not exist before a time period. The same method is also used for words too. The goal is to narrow down the date by finding features/words that had not been designed before a specific date. 
 After a date has been chosen it is peer reviewed for accuracy within their scientific journals
+
+
+## Every Interesting Old Testament Story Is Like the Game of Telephone
+How can I believe any story that was written by 3rd person accounts. In fact, the most interesting Old Testament stories are written supposedly 100's and 1000's of years after they took place. 
 
 | Diff in Stories Date and When Written (in years) | Story                                                                                                                                                       |                                                                                                     | Bibles Proposed Date for the Story (estimated in BC) | Actual Date the Story Was Written (in BC) | Previous Influential Mythology                                                                                                                 | Example Similarities                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  |
 | ------------------------------------------------ | ----------------------------------------------------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------- | ---------------------------------------------------- | ----------------------------------------- | ---------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
