@@ -17,4 +17,4 @@ Nathan Stacey
 
 
 
-{:toc}
+*{:toc}
