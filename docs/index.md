@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+## Hey (names removed)
 
-You can use the [editor on GitHub](https://github.com/Letter-to-Christian-Scholars/letter/edit/main/docs/index.md) to maintain and preview the content for your website in Markdown files.
+First of all, I appreciate your time in looking into this.  Everyone's time is precious and thank you for spending it with me on this
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+I think it best that this comes in a written manner because I do not want emotion in this discussion. I really appreciate our relationships and I do not want to hinder them. I also know that many answers will take a long time to answer correctly. These are truly just questions and do not affect how I feel about you
 
-### Markdown
+I want to be told that my questions are 'dumb' for lack of a better word. Staying a christian would be easier than leaving. I know that you may not believe this but it is true. My entire support system is in that fold and life it is so frustrating having to be the odd one out. I want to have those deep conversations that we used to have without being so different in my views. I want to be told I am wrong
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+I also need to be straightforward though. The more I research the more I find to prove my theories. I have been researching this for years. It is hard to live with believers, research is my outlet. I have seen apologist responses to these questions and they do not suffice. Generally they rely on causation equaling correlation. But that is not the case. I want answers that truly prove themselves, not 'what if' statements 
 
-```markdown
-Syntax highlighted code block
+I read the CES Letter and it was the best way I have found to share religious concerns. The idea is to lay out every concern in one single document. If we are truly going to defend christianity then all issues need to be discussed at once 
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Letter-to-Christian-Scholars/letter/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+To end, I fear even sending you this. I do not want to hurt our relationship but I know that it will. Just know, I think of you the same before and after you read this
