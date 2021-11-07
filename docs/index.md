@@ -11,3 +11,10 @@ I also need to be straightforward though. The more I research the more I find to
 I read the CES Letter and it was the best way I have found to share religious concerns. The idea is to lay out every concern in one single document. If we are truly going to defend christianity then all issues need to be discussed at once 
 
 To end, I fear even sending you this. I do not want to hurt our relationship but I know that it will. Just know, I think of you the same before and after you read this
+
+
+Nathan Stacey
+
+
+
+{:toc}
