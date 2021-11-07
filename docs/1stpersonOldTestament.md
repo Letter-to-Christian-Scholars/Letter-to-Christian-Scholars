@@ -12,6 +12,9 @@ In my mind, to believe in Jesus requires believing the Old Testament. There are 
 
 The most important of items established in the Old Testament is the prophecy of a Savior. In my mind it is the key reason to believe in Jesus. He was fulfilling prophecy
 
+# Table of Contents
+1. [Ancient Manuscript Dating](#ancient-manuscript-dating)
+2. [Every Interesting Old Testament Story Is Like the Game of Telephone](#every-interesting-old-testament-story-is-like-the-game-of-telephone)
 
 
 ## Ancient Manuscript Dating
