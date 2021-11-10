@@ -1,4 +1,4 @@
-## Hey (names removed)
+## Hey (names removed),
 
 First of all, I appreciate your time in looking into this.  Everyone's time is precious and thank you for spending it with me on this
 
