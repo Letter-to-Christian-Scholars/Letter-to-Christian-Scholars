@@ -1,5 +1,3 @@
-# 1st Person Accounts of Jesus
-
 ## Central Question:
 
 What exactly are the Four Gospels
