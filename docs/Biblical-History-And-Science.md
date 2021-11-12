@@ -1,3 +1,16 @@
+## Central Question:
+
+How do I process the drastic differences in the history written in the Bible and artifacts showing human history?
+
+
+## Why this is important to me:
+
+The Bible shares the history of many things. For centuries its history had to be trustest as we had no way to double check its words. In the modern day we have vast scientific understandings. We have seen artifacts that create a consistent evolution path of humans and our stories.
+
+To truly believe the Bible, I feel that I should be allowed to believe all of it. For if I cannot believe it all, what parts should I believe? If these scientific discoveries show drastic differences to the Bible stories then what am I to believe
+
+
+
 The below is from the[ CES Letter](https://read.cesletter.org/)
 
 
