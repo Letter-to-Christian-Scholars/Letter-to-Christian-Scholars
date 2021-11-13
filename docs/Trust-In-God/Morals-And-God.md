@@ -12,13 +12,13 @@ I want to be moral and I want those around me to be moral. I am willing to do an
 
 The science of ethics and morality shows that people are ethical by nature. This can be seen in the below charts as we measure non-religious countries and homicide and crime rates. The least religious nations actually have less crime than those with religion. I understand that there are many factors involved in these stats. That said, if religion is truly needed to be moral then these charts should make it very obvious.
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/homicideratesbycountry.png)
+![](/assets/images/homicideratesbycountry.png)
 [https://www.businessinsider.com/here-are-the-homicide-rates-for-countries-around-the-world-2014-11](https://www.businessinsider.com/here-are-the-homicide-rates-for-countries-around-the-world-2014-11)
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/crimeratesbycountry.png)
+![](/assets/images/crimeratesbycountry.png)
 [https://worldpopulationreview.com/country-rankings/crime-rate-by-country](https://worldpopulationreview.com/country-rankings/crime-rate-by-country)
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/religiousratesbycountry.png)
+![](/assets/images/religiousratesbycountry.png)
 [https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)
 
 

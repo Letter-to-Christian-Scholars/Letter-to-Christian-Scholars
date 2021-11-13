@@ -14,9 +14,9 @@ It is not healthy behavior. It creates a culture of shaming and fear. There is a
 
 ### **Grooming/Conditioning Tactics Used**
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/relabeling.png)
+![](/assets/images/relabeling.png)
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/pastor.png)
+![](/assets/images/pastor.png)
 
 [https://nakedpastor.medium.com/why-the-church-is-the-perfect-culture-for-spiritual-abuse-7caeb2d6b472](https://nakedpastor.medium.com/why-the-church-is-the-perfect-culture-for-spiritual-abuse-7caeb2d6b472)
 

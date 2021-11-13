@@ -19,9 +19,9 @@ And the saddest countries are the most religious. Every country with greater tha
 So any country with the freedom to choose religion meets this fact.
 
 As I look at these, I wonder if I can argue that the most religious countries are the least happy. This would be completely opposite of what religious people would expect by their teachings
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/happiestcountries.png)
+![](assets/images/happiestcountries.png)
 
 [https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/](https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/)
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/religiousratesbycountry.png)
+![](/assets/images/religiousratesbycountry.png)
 [https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)

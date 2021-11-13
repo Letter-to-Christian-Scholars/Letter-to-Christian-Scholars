@@ -26,7 +26,7 @@ With so many people using the Spirit, there should be a strong set of guidelines
 
 A common method for this is the Ooda Loop. The idea is to try something, test its accuracy, then readjust for better performance on the next iteration
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/ooda-loop.png)
+![](/assets/images/ooda-loop.png)
 
 I feel that if the Spirit is to be used to be a source we depend on, it needs an OODA Loop. Otherwise how do we know if we are using it right or wrong.
 
@@ -38,9 +38,9 @@ I have looked for hours. I cannot find a solid OODA Loop like paper on the Spiri
 For years I accepted that OODA Loops simply may not exist for the spiritual components of this world.[ But Eastern spiritual practices do have them](https://link.springer.com/article/10.1007%2Fs12671-014-0379-y). Many different meditation philosophies have been scientifically proven. There are white papers on how to use them as remedies for depression or grief. These meditation practices often use the same techniques discussed when using the spirit but with more control.
 
 One example is the many expected values that come from Mindfulness Meditation as shown below
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/mindfulness.png)
+![](/assets/images/mindfulness.png)
 
-[https://www.flickr.com/photos/25541021@N00/16618075846](https://www.flickr.com/photos/25541021@N00/16618075846)
+[https://www.flickr.com/docs/assets/images/25541021@N00/16618075846](https://www.flickr.com/docs/assets/images/25541021@N00/16618075846)
 
 
 ## **Without an OODA Loop we fall prey to Cognitive Bias**
@@ -64,7 +64,7 @@ How many times do we thing something great happened because of us but really it 
 
 And all of this is contingent on our Arbitrary inference bias, the one that lets us consider using the Spirit even though there is no OODA Loop.
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/Common_Cognitive_Biases.png)
+![](/assets/images/Common_Cognitive_Biases.png)
 
 [https://commons.wikimedia.org/wiki/File:Common_Cognitive_Biases.png](https://commons.wikimedia.org/wiki/File:Common_Cognitive_Biases.png)
 

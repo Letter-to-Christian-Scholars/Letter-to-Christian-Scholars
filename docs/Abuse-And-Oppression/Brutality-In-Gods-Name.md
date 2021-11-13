@@ -14,7 +14,7 @@ Why is that. Why is brutality a core tenant to christianity
 
 ## **Direct Correlation to Death Penalty Opinions and Christianity**
 
-![](https://github.com/Letter-to-Christian-Scholars/Letter-to-Christian-Scholars/blob/main/photos/punishment.png)
+![](/assets/images/punishment.png)
 [https://deathpenaltyinfo.org/facts-and-research/religious-statements/opinion-polls-death-penalty-support-and-religion](https://deathpenaltyinfo.org/facts-and-research/religious-statements/opinion-polls-death-penalty-support-and-religion)
 
 
