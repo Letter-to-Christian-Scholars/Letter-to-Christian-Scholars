@@ -1,1 +1,5 @@
 theme: jekyll-theme-slate
+
+url: "https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/" # the base hostname & protocol for your site
+plugins:
+  - jekyll-sitemap
