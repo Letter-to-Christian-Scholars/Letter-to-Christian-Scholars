@@ -54,3 +54,30 @@ Pagan to Christian (not Catholic) to Muslim to Catholic to Muslim to Catholic. W
 The[ Requerimiento](https://en.wikipedia.org/wiki/Requerimiento) of 1512 served as a legal doctrine mandating that the Amerindians accept the Spanish monarch's power over the region and Christianity. The doctrine called for the Amerindians who abided by these demands to be considered “loyal vassals,” but justified war against the Amerindians if they opposed the Spaniards’ power and allowed for an aggressive conquest, resulting in the Amerindians being “deprived of their liberty and property.”<sup><a href="https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#cite_note-3">[3][4]</a></sup> The _Requerimiento_ briefly alludes to the enslavement of the Amerindians as a result of the Spaniards' militaristic conquest of the region.<sup><a href="https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#cite_note-5">[5]</a></sup>
 
 [https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#:~:text=The%20Catholic%20Church%20in%20Latin,up%20to%20the%20present%20day.&text=Pope%20Francis%20has%20embraced%20many,to%20the%20poor%20and%20marginalized.](https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#:~:text=The%20Catholic%20Church%20in%20Latin,up%20to%20the%20present%20day.&text=Pope%20Francis%20has%20embraced%20many,to%20the%20poor%20and%20marginalized.)
+
+
+
+
+# Letter Sections
+- [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
+- [Preface: Belief Change Bias](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
+- Abuse And Oppression
+  * [Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
+  * [Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
+  * [Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+  * [Sexual Abuse Epidemic and Cover-Ups](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
+  * [Slavery Justification via Bible](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
+- Bible Accuracy
+  * [1st Person Accounts of Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Accounts-Of-Jesus.html)
+  * [1st Person Old Testament](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Old-Testament.html)
+  * [Biblical History and Science](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Biblical-History-And-Science.html)
+  * [Josephus and Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
+  * [Nicene Creed](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
+  * [New Testament Contradictions](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
+- Trust In God
+  * [Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
+  * [Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
+  * [Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+  * [Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+  * [Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+  * [Spirit](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Spirit.html)
