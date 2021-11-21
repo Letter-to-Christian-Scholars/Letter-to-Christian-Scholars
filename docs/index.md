@@ -1,5 +1,3 @@
-[<< Slavery Justification via Bible](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Preface >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
 
 
