@@ -2,14 +2,14 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [1st Person Old Testament >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Old-Testament.html)
 
-
-## Central Question:
+# **1st Person Accounts Of Jesus**
+## **Central Question:**
 
 What exactly are the Four Gospels
 
 
 
-## Why this is important to me:
+## **Why this is important to me:**
 
 I understand the importance of faith. I feel that there needs to be some basis to build that faith upon.  This is about that base. Where can I find a foundation worthy of considering christianity 
 
@@ -19,7 +19,7 @@ Luke 2 is read throughout the world every December 24th. The Beatitudes define t
 
 
 
-## Ancient Manuscript Dating
+## **Ancient Manuscript Dating**
 
 
 Dating texts cross-references many techniques to check the results of each. Carbon Dating is one method but not the only method. Experts also look at inconsistency in some arrangement, especially a juxtaposition of persons, events, objects, language terms and customs from different time periods
@@ -28,7 +28,7 @@ A good example of this is  text handwriting clues such as fonts that did not ex
 After a date has been chosen it is peer reviewed for accuracy within their scientific journals
 
 
-## Mark Was Written 30-40 years after Christ
+## **Mark Was Written 30-40 years after Christ**
 
 Most scholars date Mark to c. 66–74 AD, either shortly before or after the destruction of the Second Temple in 70 AD. 
 
@@ -36,13 +36,13 @@ They reject the traditional ascription to Mark the Evangelist, the companion of 
 
 
 
-## The Other Four Gospels Copy Mark
+## **The Other Four Gospels Copy Mark**
 
 The other Four Gospels are all written after Mark and copy much of the contents in Mark. Here is a chart showing the similarities between all of the Gospels. The best chance for an eyewitness account of Christ is via Mark. 
 
 
 
-## The Q Theory - Only Truly 2 Gospels
+## **The Q Theory - Only Truly 2 Gospels**
 
 
 Q was hypothesized by 1900, and is one of the foundations of most modern gospel scholarship[1].  B. H. Streeter formulated a widely accepted view of Q: that it was written in Koine Greek; that most of its contents appear in Matthew, in Luke, or in both; and that Luke more often preserves the text's original order than Matthew. 
@@ -53,14 +53,14 @@ Q was hypothesized by 1900, and is one of the foundations of most modern gospel 
 
 
 
-## Matthew was written anonymously 30-70 years after Christ
+## **Matthew was written anonymously 30-70 years after Christ**
 
 Most scholars believe the gospel was composed between AD 80 and 90, with a range of possibility between AD 70 to 110; a pre-70 date remains a minority view.[1] The work does not identify its author, and the early tradition attributing it to the apostle Matthew is rejected by modern scholars.[2] He was probably a male Jew, standing on the margin between traditional and non-traditional Jewish values, and familiar with technical legal aspects of scripture being debated in his time.[1] Writing in a polished Semitic "synagogue Greek", he drew on the Gospel of Mark as a source, plus the hypothetical collection of sayings known as the Q source (material shared with Luke but not with Mark) and material unique to his own community, called the M source or "Special Matthew".[1]
 1. Duling, Dennis C. (2010). "The Gospel of Matthew". In Aune, David E. (ed.). The Blackwell Companion to the New Testament. Wiley-Blackwell. ISBN 978-1-4051-0825-6
 2. Burkett, Delbert (2002). An introduction to the New Testament and the origins of Christianity. Cambridge University Press.ISBN 978-0-521-00720-7.
 
 
-## Luke was written anonymously 45-200 years after Christ
+## **Luke was written anonymously 45-200 years after Christ**
 
 Most modern scholars agree that the main sources used for Luke were (a) the Gospel of Mark, (b) the Q source, and (c) material found in no other gospels, often referred to as the L (for Luke) source.[1] The author is anonymous;[2] the traditional view that it was Luke the Evangelist, the companion of Paul, is still occasionally put forward, but the scholarly consensus emphasises the many contradictions between Acts and the authentic Pauline letters.[3] The most probable date for its composition is around AD 80–110, and there is evidence that it was still being revised well into the 2nd century.[4]
 1. Duling, Dennis C. (2010). "The Gospel of Matthew". In Aune, David E. (ed.). The Blackwell Companion to The New Testament. Wiley–Blackwell. ISBN 9781444318944.
@@ -70,7 +70,7 @@ Most modern scholars agree that the main sources used for Luke were (a) the Gosp
 
 
 
-## John was written anonymously 55 years after Christ
+## **John was written anonymously 55 years after Christ**
 
 The Gospel of John, like all the gospels, is anonymous.[1] John 21:22 references a disciple whom Jesus loved and John 21:24-25 says: "This is the disciple who is testifying to these things and has written them, and we know that his testimony is true; but there are also many other things that Jesus did; if all of them were written down, I suppose that the world itself would not contain the books that would be written."[2] Early Christian tradition, first attested by Irenaeus (c. 130 – c. 202 AD), identified this disciple with John the Apostle, together with the Gnostics, such as Ptolemy who in his letter to Flora quotes the Gospel and attributes it to an Apostle without giving names and Basilides who quotes John 1:9 and considers it a gospel, but most scholars have abandoned this hypothesis or hold it only tenuously[3] – for example, the gospel is written in good Greek and displays sophisticated theology, and is therefore unlikely to have been the work of a simple fisherman.[4] These verses imply rather that the core of the gospel relies on the testimony (perhaps written) of the "disciple who is testifying", as collected, preserved and reshaped by a community of followers (the "we" of the passage), and that a single follower (the "I") rearranged this material and perhaps added the final chapter and other passages to produce the final gospel.[5] Most scholars estimate the final form of the text to be around AD 90–110.[6] Given its complex history there may have been more than one place of composition, and while the author was familiar with Jewish customs and traditions, his frequent clarification of these implies that he wrote for a mixed Jewish/Gentile or Jewish context outside Palestine.[citation needed]
 1. O'Day, Gail R. (1998). "John". In Newsom, Carol Ann; Ringe, Sharon H. (eds.). Women's Bible Commentary. Westminster John Knox Press. ISBN 9780664257811.
@@ -82,7 +82,7 @@ The Gospel of John, like all the gospels, is anonymous.[1] John 21:22 references
 
 
 
-## Oral Gospel Tradition Theory
+## **Oral Gospel Tradition Theory**
 
 I am struggling to consider these Four Gospels as a strong base for Christianity. None of these accounts are from people who actually saw these miracles. They did not see Jesus rise from the dead. 
 
