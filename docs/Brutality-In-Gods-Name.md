@@ -3,6 +3,7 @@
 [Christianity the Religion of your Oppression >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
 
 
+# **Brutality in Gods Name**
 ## **Central Question:**
 
 Why is brutality always associated with the most christian people I know
