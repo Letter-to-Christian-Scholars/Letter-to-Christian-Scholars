@@ -12,7 +12,9 @@ How do I explain the very obvious slavery theme in both the Old and New Testamen
 
 The Bible is supposed to be 'the good book,' the 'book of peace and comfort.' I will be honest, I read the below verses and I cannot believe that we expect kids to read that. Without blinders. Just read through those verses and feel the spirit. Then we praise them for researching the topic. It makes me literally sick.
 
-I am trying to be unbiased in these topics but this is one that I cannot do so. To think that the Bible, Gods Word, was a common source in 1800's pro-slavery literature because of its obvious pro-slavery stance makes me speechless
+I am trying to be unbiased in these topics but this is one that I cannot do so. To think that the Bible, Gods Word, was a common source in 1800's pro-slavery literature because of its obvious pro-slavery stance makes me speechless. Even the New Testament is a rulebook pushing slaves to please their owners. This is supposed to be the book that brings every human hope and peace. Every human. In the words of Billy Graham, 'a love story between God and man' To place that kind of language onto such a racist and objectifying written work is appauling. 
+
+Any good steward of the Bible should demand a publically known warning about its pro-slavery content to assure that it is never used again for pro-slavery means. Yet, this knowledge is barely known anymore. The religious, for whatever reason, simply ignore those verses during sermons while asking people to continue reading 'the good word'
 
 It makes me wonder what other awful things still exist on this earth because the Bible supports it
 
