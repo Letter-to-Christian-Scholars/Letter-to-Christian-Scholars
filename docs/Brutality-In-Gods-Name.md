@@ -1,3 +1,8 @@
+[<< Preface: Belief Change Bias](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Christianity the Religion of your Oppression >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
+
+
 ## **Central Question:**
 
 Why is brutality always associated with the most christian people I know
