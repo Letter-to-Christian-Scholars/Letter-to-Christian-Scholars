@@ -1,3 +1,9 @@
+[<< Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+
+
+
 ## **Central Question:**
 
 Does God really expect someone to follow their oppressors religion?
