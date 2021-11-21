@@ -73,11 +73,12 @@ It is honestly a very ingenious cycle. It sounds like something that requires th
 
 
 1. Promise something that everyone wants
-2. Move people away from others with different ideas. It makes it hard to hear any other views
-3. Make it impossible for someone to achieve it on their own
-4. Place leaders around to help them achieve it
+2. Move your flock away from others that have different ideas. It makes it hard to hear any other views
+3. Make it impossible for someone to achieve the goal on their own (ie eternal salvation)
+4. Place leaders around to help them achieve said goal
 5. Everyone depends on those leaders more than they depend on anything else
-6. The gut is manipulated to tell everyone to stay in the cycle
+6. Those leaders control the 'spirit' or guy feeling of every follower
+7. The gut is manipulated to tell everyone to stay in the cycle
 
 
 ## **Opinion: Only Sects Using Grooming and Conditioning are Big and/or Growing**
@@ -87,8 +88,7 @@ I cannot find these stats but the evidence is there. Reason shows us that the re
 
 [<< Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Happiness and Religion
- >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+[Happiness and Religion >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
 
 
 # Letter Sections
