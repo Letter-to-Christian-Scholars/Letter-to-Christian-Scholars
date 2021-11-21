@@ -2,7 +2,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Nicene Creed >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
 
-
+# **Josephus and Jesus**
 ## **Central Question:**
 
 Was Josephus a contemporary of Jesus and if so did he say anything interesting about Jesus?
