@@ -2,7 +2,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [1st Person Accounts of Jesus >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Accounts-Of-Jesus.html)
 
-
+# **Slavery Justification via Bible**
 ## **Central Question:**
 
 How do I explain the very obvious slavery theme in both the Old and New Testaments? A theme that was used for literally centuries to justify slavery
