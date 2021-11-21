@@ -74,6 +74,8 @@ And all of this is contingent on our Arbitrary inference bias, the one that lets
 
 I want to see a best practice guide. Something that can show me how to trust the spirit. If I cannot trust it, I cannot use it
 
+[<< Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
