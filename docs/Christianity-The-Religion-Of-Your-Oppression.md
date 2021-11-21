@@ -62,9 +62,7 @@ The[ Requerimiento](https://en.wikipedia.org/wiki/Requerimiento) of 1512 served 
 [https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#:~:text=The%20Catholic%20Church%20in%20Latin,up%20to%20the%20present%20day.&text=Pope%20Francis%20has%20embraced%20many,to%20the%20poor%20and%20marginalized.](https://en.wikipedia.org/wiki/Catholic_Church_in_Latin_America#:~:text=The%20Catholic%20Church%20in%20Latin,up%20to%20the%20present%20day.&text=Pope%20Francis%20has%20embraced%20many,to%20the%20poor%20and%20marginalized.)
 
 
-[<< Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+### [<< Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html) &nbsp; [Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
 
 
 # Letter Sections
