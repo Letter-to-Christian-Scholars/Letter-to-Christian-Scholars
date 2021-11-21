@@ -62,3 +62,29 @@ The foregoing examples are just a few of the hundreds of contradictions containe
 The[ New Testament](https://en.wikipedia.org/wiki/New_Testament) provides two accounts of the **genealogy of Jesus**, one in the[ Gospel of Matthew](https://en.wikipedia.org/wiki/Gospel_of_Matthew) and another in the[ Gospel of Luke](https://en.wikipedia.org/wiki/Gospel_of_Luke).<sup><a href="https://en.wikipedia.org/wiki/Genealogy_of_Jesus#cite_note-1">[1]</a></sup> Matthew starts with[ Abraham](https://en.wikipedia.org/wiki/Abraham), while Luke begins with[ Adam](https://en.wikipedia.org/wiki/Adam). The lists are identical between Abraham and[ David](https://en.wikipedia.org/wiki/David), but differ radically from that point. Matthew has twenty-seven generations from David to[ Joseph](https://en.wikipedia.org/wiki/Saint_Joseph), whereas Luke has forty-two, with almost no overlap between the names on the two lists.⁠ Notably, the two accounts also disagree on who Joseph's father was: Matthew says he was Jacob, while Luke says he was Heli.<sup><a href="https://en.wikipedia.org/wiki/Genealogy_of_Jesus#cite_note-2">[2]</a></sup>
 
 [https://en.wikipedia.org/wiki/Genealogy_of_Jesus](https://en.wikipedia.org/wiki/Genealogy_of_Jesus)
+
+
+
+# Letter Sections
+- [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
+- [Preface: Belief Change Bias](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
+- Abuse And Oppression
+  * [Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
+  * [Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
+  * [Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+  * [Sexual Abuse Epidemic and Cover-Ups](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
+  * [Slavery Justification via Bible](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
+- Bible Accuracy
+  * [1st Person Accounts of Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Accounts-Of-Jesus.html)
+  * [1st Person Old Testament](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Old-Testament.html)
+  * [Biblical History and Science](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Biblical-History-And-Science.html)
+  * [Josephus and Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
+  * [Nicene Creed](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
+  * [New Testament Contradictions](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
+- Trust In God
+  * [Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
+  * [Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
+  * [Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+  * [Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+  * [Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+  * [Spirit](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Spirit.html)
