@@ -1,5 +1,6 @@
-<!-- Output copied to clipboard! -->
-
+[<< Josephus and Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[New Testament Contradictions >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
 
 ## **Central Question:**
 
