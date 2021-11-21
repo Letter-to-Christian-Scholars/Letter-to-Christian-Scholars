@@ -27,10 +27,11 @@ As I look at these, I wonder if I can argue that the most religious countries ar
 
 ![](assets/images/happiestcountries.png)
 
-<sup>[https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/](https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/)</sup>
+##### <sup>[https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/](https://www.visualcapitalist.com/visualizing-the-happiest-country-on-every-continent/)</sup>
 
 ![](assets/images/religiousratesbycountry.png)
-<sup>[https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)</sup>
+
+####### [https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)
 
 
 [<< Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
