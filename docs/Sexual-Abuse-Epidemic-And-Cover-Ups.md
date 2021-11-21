@@ -107,6 +107,10 @@ Another hardcore fundamentalist leader who had a mentorship relationship with th
 [https://slate.com/human-interest/2015/05/josh-duggar-is-the-latest-in-a-string-of-sex-abuse-scandals-rocking-the-christian-patriarchy-movement.html](https://slate.com/human-interest/2015/05/josh-duggar-is-the-latest-in-a-string-of-sex-abuse-scandals-rocking-the-christian-patriarchy-movement.html)
 
 
+[<< Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Slavery Justification via Bible >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
+
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
