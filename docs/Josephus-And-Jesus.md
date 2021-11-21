@@ -45,9 +45,7 @@ Modern scholarship has largely acknowledged the authenticity of the second refer
 
 
 
-[<< Biblical History and Science](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Biblical-History-And-Science.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Nicene Creed >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
+### [<< Biblical History and Science](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Biblical-History-And-Science.html) &nbsp; [Nicene Creed >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
 
 
 # Letter Sections
