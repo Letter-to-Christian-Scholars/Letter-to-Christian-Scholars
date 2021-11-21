@@ -86,9 +86,7 @@ It is honestly a very ingenious cycle. It sounds like something that requires th
 I cannot find these stats but the evidence is there. Reason shows us that the religions with massive growth follow these methods described above. It makes me wonder if they are growing because of good religion or because of grooming and conditioning
 
 
-[<< Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Happiness and Religion >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+### [<< Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html) &nbsp; [Happiness and Religion >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
 
 
 # Letter Sections
