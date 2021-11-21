@@ -1,3 +1,9 @@
+[<< Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Brutality In Gods Name >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
+
+
+
 ![Nature Journal](/assets/images/1600px-Nature_logo_2019.jpeg)
 *It is well known that people often resist changing their beliefs when directly challenged, especially when these beliefs are central to their identity. In some cases, exposure to counterevidence may even increase a person’s confidence that his or her cherished beliefs are true*
 
