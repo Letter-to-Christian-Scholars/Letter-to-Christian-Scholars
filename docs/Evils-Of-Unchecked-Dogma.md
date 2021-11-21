@@ -2,7 +2,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Grooming and Conditioning >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
 
-
+# **Evils of Unchecked Dogma**
 ## **Central Question:**
 
 Is religious dogma bad?
