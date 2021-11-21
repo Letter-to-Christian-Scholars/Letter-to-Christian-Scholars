@@ -1,4 +1,6 @@
-
+[<< Nicene Creed](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Evils of Unchecked Dogma >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
 
 ### **Central Question:**
 
