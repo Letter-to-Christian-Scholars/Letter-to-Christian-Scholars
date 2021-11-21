@@ -32,9 +32,7 @@ Originally collated by https://www.patheos.com/blogs/daylightatheism/2017/12/rap
 *This is some real shit. Read the[ #RaptureAnxiety](https://twitter.com/hashtag/RaptureAnxiety?src=hashtag_click) hashtag. I still have deep, possibly permanent damage from being taught as a child that the world could end at any second, and you better hope you aren't sinning when it happens, or you'll burn in hell forever. Suicidal anxiety.* [Tweet](https://twitter.com/jonjones/status/939626428626276353?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E939626428626276353%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.patheos.com%2Fblogs%2Fdaylightatheism%2F2017%2F12%2Fraptureanxiety-evangelical-torture-mind%2F)
 
 
-[<< Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Sexual Abuse Epidemic and Cover-Ups >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
+### [<< Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html) &nbsp; [Sexual Abuse Epidemic and Cover-Ups >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
