@@ -43,3 +43,30 @@ The opposing view stemmed from the idea that begetting the Son is itself in the 
 ## **These unifying decisions did not happen for religious reasons, they were pushed by the empire for civil order**
 
 Constantine's role regarding Nicaea was that of supreme civil leader and authority in the empire. As Emperor, the responsibility for maintaining civil order was his, and he sought that the Church be of one mind and at peace. When first informed of the unrest in Alexandria due to the Arian disputes, he was "greatly troubled" and, "rebuked" both Arius and Bishop[ Alexander](https://en.wikipedia.org/wiki/Pope_Alexander_I_of_Alexandria) for originating the disturbance and allowing it to become public.<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-sozomen1-79">[79]</a></sup> Aware also of "the diversity of opinion" regarding the celebration of Easter and hoping to settle both issues, he sent the "honored" Bishop[ Hosius of Cordova](https://en.wikipedia.org/wiki/Hosius_of_Corduba) (Hispania) to form a local church council and "reconcile those who were divided".<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-sozomen1-79">[79]</a></sup> When that embassy failed, he turned to summoning a synod at Nicaea, inviting "the most eminent men of the churches in every country".<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-80">[80]</a></sup>
+
+
+
+
+# Letter Sections
+- [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
+- [Preface: Belief Change Bias](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
+- Abuse And Oppression
+  * [Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
+  * [Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
+  * [Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+  * [Sexual Abuse Epidemic and Cover-Ups](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
+  * [Slavery Justification via Bible](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
+- Bible Accuracy
+  * [1st Person Accounts of Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Accounts-Of-Jesus.html)
+  * [1st Person Old Testament](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Old-Testament.html)
+  * [Biblical History and Science](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Biblical-History-And-Science.html)
+  * [Josephus and Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
+  * [Nicene Creed](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Nicene-Creed.html)
+  * [New Testament Contradictions](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
+- Trust In God
+  * [Evils of Unchecked Dogma](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
+  * [Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
+  * [Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+  * [Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+  * [Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+  * [Spirit](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Spirit.html)
