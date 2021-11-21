@@ -3,7 +3,7 @@
 [Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
 
 
-
+# **Christianity the Religion of your Oppression**
 ## **Central Question:**
 
 Does God really expect someone to follow their oppressors religion?
