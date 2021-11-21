@@ -1,3 +1,7 @@
+[<< Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Morals and God >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+
 
 ## **Central Question:**
 
@@ -63,6 +67,9 @@ _Intuition is a popular topic in psychology these days, and generally refers to 
 https://www.livescience.com/54825-scientists-measure-intuition.html
 
 
+[<< Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Morals and God >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
 
 
 # Letter Sections
