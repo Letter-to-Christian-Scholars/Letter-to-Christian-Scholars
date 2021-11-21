@@ -58,7 +58,7 @@ Everyone has a great story with the Spirit, but how many failures happened to ge
 
 ### **Personalization**
 
-How many times do we thing something great happened because of us but really it was due to items out of our control
+How many times do we think something great happened because of us but really it was due to items out of our control
 
 
 ### **Arbitrary Inference**
@@ -74,7 +74,7 @@ And all of this is contingent on our Arbitrary inference bias, the one that lets
 
 I want to see a best practice guide. Something that can show me how to trust the spirit. If I cannot trust it, I cannot use it
 
-[<< Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+### [<< Morals and God](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
 
 
 # Letter Sections
