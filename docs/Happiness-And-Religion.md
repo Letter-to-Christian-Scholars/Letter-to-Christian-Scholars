@@ -34,7 +34,7 @@ As I look at these, I wonder if I can argue that the most religious countries ar
 [https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)
 
 
-#### [<< Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html) &nbsp; [Miracles and Big Data >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+### [<< Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html) &nbsp; [Miracles and Big Data >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
