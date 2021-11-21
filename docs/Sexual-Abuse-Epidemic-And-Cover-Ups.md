@@ -1,3 +1,8 @@
+[<< Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Slavery Justification via Bible >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
+
+
 ## **Central Question:**
 
 The abuse news is bad enough, why does every Christian church then try to cover it up?
