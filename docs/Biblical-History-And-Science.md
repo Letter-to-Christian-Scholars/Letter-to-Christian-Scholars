@@ -2,7 +2,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Josephus and Jesus >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
 
-
+# Biblical History and Science
 ## Central Question:
 
 How do I process the drastic differences in the history written in the Bible and artifacts showing human history?
