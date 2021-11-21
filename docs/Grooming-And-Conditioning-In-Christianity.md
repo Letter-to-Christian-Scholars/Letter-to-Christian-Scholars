@@ -3,7 +3,7 @@
 [Happiness and Religion
  >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
 
-
+# **Grooming and Conditioning**
 ## **Central Question:**
 
 Why are grooming and conditioning patterns so prevalent in, well, every major religion
