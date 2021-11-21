@@ -1,3 +1,8 @@
+[<< Grooming and Conditioning](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Miracles and Big Data >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+
+
 ## **Central Question:**
 
 Why does it seem like the nonreligious nations are more happy
