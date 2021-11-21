@@ -27,7 +27,7 @@ The science of ethics and morality shows that people are ethical by nature. This
 [https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/](https://www.pewforum.org/2018/06/13/how-religious-commitment-varies-by-country-among-people-of-all-ages/)
 
 
-## **Science: our morals are not by religion by to be approved by a community**
+## **Science: our morals are by evolution NOT religion**
 
 The brain areas that are consistently involved when humans reason about moral issues have been investigated.<sup><a href="https://en.wikipedia.org/wiki/Science_of_morality#cite_note-25">[24]</a></sup> The neural network underlying moral decisions overlaps with the network pertaining to representing others' intentions (i.e., theory of mind) and the network pertaining to representing others' (vicariously experienced) emotional states (i.e., empathy). This supports the notion that moral reasoning is related to both seeing things from other persons’ points of view and to grasping others’ feelings. These results provide evidence that the neural network underlying moral decisions is probably domain-global (i.e., there might be no such things as a "moral module" in the human brain) and might be dissociable into cognitive and affective sub-systems. An essential, shared component of moral judgment involves the capacity to detect morally salient content within a given social context. Recent research implicated the salience network in this initial detection of moral content.<sup><a href="https://en.wikipedia.org/wiki/Science_of_morality#cite_note-26">[25]</a></sup> The salience network responds to behaviourally salient events,<sup><a href="https://en.wikipedia.org/wiki/Science_of_morality#cite_note-27">[26][27]</a></sup> and may be critical to modulate downstream default and frontal control network interactions in the service of complex moral reasoning and decision-making processes. This suggest that moral cognition involves both bottom-up and top-down attentional processes, mediated by discrete large-scale brain networks and their interactions.
 
@@ -51,7 +51,7 @@ Anthropologists are looking at different societies throughout the world to find 
 * Respect others’ property
 
 
-[<< Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+### [<< Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Spirit >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Spirit.html)
 
