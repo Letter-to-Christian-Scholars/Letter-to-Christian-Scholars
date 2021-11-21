@@ -2,7 +2,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 [Evils of Unchecked Dogma >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Evils-Of-Unchecked-Dogma.html)
 
-### **Central Question:**
+# **New Testament Contradictions**
+## **Central Question:**
 
 How do I believe the New Testament when it contradicts itself
 
