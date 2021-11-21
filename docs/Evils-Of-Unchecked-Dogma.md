@@ -50,9 +50,7 @@ Religious Trauma Syndrome (RTS) is group of symptoms that arise in response to t
 Dan and Doug, and Mark from "[How-To Heretic](https://howtoheretic.com/podcast)" studied many religious founders over the course of their podcast. In their final episodes they came to some conclusions about every religion old and new. They were all created by narcissists looking for extreme power. As a side effect, these religious leaders always made their followers perform odd sexual actions. The religions included seperation from the non-believers to assure the leader has as much power as needed. Every single one
 
 
-[<< New Testament Contradictions](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Grooming and Conditioning >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
+### [<< New Testament Contradictions](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html) &nbsp; [Grooming and Conditioning >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Grooming-And-Conditioning-In-Christianity.html)
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
