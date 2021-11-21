@@ -1,3 +1,8 @@
+[<< Miracles and Big Data](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Miracles-And-Big-Data.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Spirit >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Spirit.html)
+
+
 ## **Central Question:**
 
 Do we need God to be moral?
