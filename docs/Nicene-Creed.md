@@ -46,7 +46,9 @@ The opposing view stemmed from the idea that begetting the Son is itself in the 
 Constantine's role regarding Nicaea was that of supreme civil leader and authority in the empire. As Emperor, the responsibility for maintaining civil order was his, and he sought that the Church be of one mind and at peace. When first informed of the unrest in Alexandria due to the Arian disputes, he was "greatly troubled" and, "rebuked" both Arius and Bishop[ Alexander](https://en.wikipedia.org/wiki/Pope_Alexander_I_of_Alexandria) for originating the disturbance and allowing it to become public.<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-sozomen1-79">[79]</a></sup> Aware also of "the diversity of opinion" regarding the celebration of Easter and hoping to settle both issues, he sent the "honored" Bishop[ Hosius of Cordova](https://en.wikipedia.org/wiki/Hosius_of_Corduba) (Hispania) to form a local church council and "reconcile those who were divided".<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-sozomen1-79">[79]</a></sup> When that embassy failed, he turned to summoning a synod at Nicaea, inviting "the most eminent men of the churches in every country".<sup><a href="https://en.wikipedia.org/wiki/First_Council_of_Nicaea#cite_note-80">[80]</a></sup>
 
 
-
+[<< Josephus and Jesus](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Josephus-And-Jesus.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[New Testament Contradictions >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/New-Testament-Contradictions.html)
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
