@@ -5,7 +5,7 @@
 
 ## **Central Question:**
 
-How much pain do Christian live with because of the Rapture
+How much pain do Christians live with because of the Rapture
 
 
 ## **Why this is important to me:**
