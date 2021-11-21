@@ -79,7 +79,9 @@ What about the soldiers who committed atrocities in Vietnam, like William Calley
 
 
 
-
+[<< Preface: Belief Change Bias](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[Christianity the Religion of your Oppression >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
