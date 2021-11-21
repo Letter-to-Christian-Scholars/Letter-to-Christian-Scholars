@@ -64,12 +64,10 @@ _The study shows that intuition does, indeed, exist and that researchers can mea
 
 _Intuition is a popular topic in psychology these days, and generally refers to a brain process that gives people the ability to[ make decisions without the use of analytical reasoning](https://www.livescience.com/3289-study-suggests-gut-instincts-work.html), the researchers suggest._
 
-https://www.livescience.com/54825-scientists-measure-intuition.html
+[https://www.livescience.com/54825-scientists-measure-intuition.html](https://www.livescience.com/54825-scientists-measure-intuition.html)
 
 
-[<< Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
-[Morals and God >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
+### [<< Happiness and Religion](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Happiness-And-Religion.html) &nbsp;&nbsp;&nbsp;  [Morals and God >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Morals-And-God.html)
 
 
 # Letter Sections
