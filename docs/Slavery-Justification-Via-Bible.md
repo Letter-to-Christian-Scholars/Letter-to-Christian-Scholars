@@ -87,6 +87,10 @@ There is neither Jew nor Greek, there is neither slave nor free, there is no mal
 Blessed is that servant whom his master will find so doing when he comes. Truly, I say to you, he will set him over all his possessions. But if that servant says to himself, ‘My master is delayed in coming,’ and begins to beat the male and female servants, and to eat and drink and get drunk, the master of that servant will come on a day when he does not expect him and at an hour he does not know, and will cut him in pieces and put him with the unfaithful. And that servant who knew his master's will but did not get ready or act according to his will, will receive a severe beating
 
 
+[<< Sexual Abuse Epidemic and Cover-Ups](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+[1st Person Accounts of Jesus >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/1st-Person-Accounts-Of-Jesus.html)
+
 
 # Letter Sections
 - [Letter](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/index.html)
