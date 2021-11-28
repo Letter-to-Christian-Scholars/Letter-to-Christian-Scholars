@@ -27,6 +27,14 @@ Religion is made to create a strong tribe. As described in the [Grooming and Con
 *Based on strong relations of proximity and kinship, as well as a relations based on the mutual survival of both the individual members of the tribe and for the tribe itself, members of a tribe tend to possess a strong feeling of identity. Objectively, for a customary tribal society to form there needs to be ongoing customary organization, enquiry and exchange. However, intense feelings of common identity can lead people to feel tribally connected.<sup><a href="https://en.wikipedia.org/wiki/Tribalism#cite_note-8">[8]</a></sup>*
 
 
+### **Colonialism, Making Indigenous People Feel Unhuman via Christianity** 
+Christianity and colonialism are often closely associated because Catholicism and Protestantism were the religions of the European colonial powers[46] and acted in many ways as the "religious arm" of those powers.[47] Historian Edward E. Andrews argues that although Christian missionaries were initially portrayed as "visible saints, exemplars of ideal piety in a sea of persistent savagery", by the time the colonial era drew to a close in the last half of the twentieth century missionaries became viewed as "ideological shock troops for colonial invasion whose zealotry blinded them."[48]
+
+Christianity is targeted by critics of colonialism because the tenets of the religion were used to justify the actions of the colonists.[49] For example, Michael Wood asserts that the indigenous peoples were not considered to be human beings and that the colonisers were shaped by "centuries of Ethnocentrism, and Christian monotheism, which espoused one truth, one time and version of reality."[50]
+
+[https://en.wikipedia.org/wiki/Criticism_of_Christianity](https://en.wikipedia.org/wiki/Criticism_of_Christianity)
+
+
 ### **Christian Nationalism Causes Racism and Bigotry**
 
 ![](/assets/images/whitechristiannationalism.png)
@@ -47,6 +55,13 @@ My religiously nuanced professor laughed at the comment but we all knew that sai
 
 [https://academic.oup.com/socrel/article/79/2/147/4825283?login=true](https://academic.oup.com/socrel/article/79/2/147/4825283?login=true)
 
+
+### **White Christians are More Racist than Whites**
+*Surveys [conducted by PRRI in 2018](https://www.prri.org/research/partisan-polarization-dominates-trump-era-findings-from-the-2018-american-values-survey/) found that white Christians — including evangelical Protestants, mainline Protestants and Catholics — are nearly twice as likely as religiously unaffiliated whites to say the killings of Black men by police are isolated incidents rather than part of a pattern of how police treat African Americans.*
+
+*And white Christians are about 30 percentage points more likely to say monuments to Confederate soldiers are symbols of Southern pride rather than symbols of racism. White Christians are also about 20 percentage points more likely to disagree with this statement: "Generations of slavery and discrimination have created conditions that make it difficult for Blacks to work their way out of the lower class." And these trends generally persist even in the wake of the recent protests for racial justice.*
+
+[https://www.nbcnews.com/think/opinion/racism-among-white-christians-higher-among-nonreligious-s-no-coincidence-ncna1235045](https://www.nbcnews.com/think/opinion/racism-among-white-christians-higher-among-nonreligious-s-no-coincidence-ncna1235045)
 
 ### [<< Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
 
