@@ -4,7 +4,7 @@
 - Abuse And Oppression
   * [Brutality In Gods Name](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Brutality-In-Gods-Name.html)
   * [Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)
-  * [Christianity Vs Love of all Mankind](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-vs-Love-Of-All-Humankind.html)
+  * [Christianity Vs Love of All Mankind](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-vs-Love-Of-All-Humankind.html)
   * [Rapture Anxiety](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
   * [Sexual Abuse Epidemic and Cover-Ups](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Sexual-Abuse-Epidemic-And-Cover-Ups.html)
   * [Slavery Justification via Bible](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Slavery-Justification-Via-Bible.html)
