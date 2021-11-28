@@ -41,7 +41,7 @@ Here is an exerpt from an address givin in 1918 which is as true today as then:
 
 *"""There are not a few circles in our day in which social progress and religious faith are regared as being in at least a semi-unfriendly relation. The leaders in the cause of the industrial classes indeed, like the Social Democrats and the Syndicalists, often thoroughly denounce religion. Workers for general social amelioration are frequently indifferent to religious faith. Great masses of people are convinced that religion does not help towards social progress and so regard it as at best a dead weight upon society. On the other hand, when churces or religious groups become vigorously active for social progress, the alarm is sure to be raised that their religion is becoming "mere social ethics." When social topics are considered in the pulpit or at the mid-week service, the fear is expressed that real religioon is being crowded out. When religious leaders throw themselves into social causes, they are suspected of having lost faith in "spiritual" forces"""*
 
-[https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents](https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents)
+[Eugene W Lyman, Harvard Theological Review April 1914](https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents)
 
 
 
