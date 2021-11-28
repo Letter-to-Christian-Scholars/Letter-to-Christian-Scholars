@@ -13,11 +13,15 @@ Why does Christianity hurt so many people?
 Growing up everyone said *do not blame the church, blame the people.* If that is the case, why do I see so much pain caused by christian organizations. It often seems like the PEOPLE are the ones pushing the ORGANIZATIONS to change and love better. Not the other way around. If God is love then He should love all people equally
 
 
+
+
 ### **We are Built to Keep Others Out**
 
 Humans are social animals and ill-equipped to live on their own.<sup><a href="https://en.wikipedia.org/wiki/Tribalism#cite_note-10">[10]</a></sup> Tribalism and social bonding help to keep individuals committed to the group, even when personal relations may fray. That keeps individuals from wandering off or joining other groups. It also leads to [bullying](https://en.wikipedia.org/wiki/Bullying) when a tribal member is unwilling to conform to the politics of the collective.<sup><a href="https://en.wikipedia.org/wiki/Tribalism#cite_note-11">[11]</a></sup>
 
 [https://en.wikipedia.org/wiki/Tribalism](https://en.wikipedia.org/wiki/Tribalism)
+
+
 
 
 ### **Religion Creates a Strong Tribe to Keep Others Out**
@@ -27,12 +31,30 @@ Religion is made to create a strong tribe. As described in the [Grooming and Con
 *Based on strong relations of proximity and kinship, as well as a relations based on the mutual survival of both the individual members of the tribe and for the tribe itself, members of a tribe tend to possess a strong feeling of identity. Objectively, for a customary tribal society to form there needs to be ongoing customary organization, enquiry and exchange. However, intense feelings of common identity can lead people to feel tribally connected.<sup><a href="https://en.wikipedia.org/wiki/Tribalism#cite_note-8">[8]</a></sup>*
 
 
+
+
+### **Religious Dogma and Social Progress Cannot Mix**
+
+From the above, I would argue that is is very difficult for a tribe to change. We like our social safety nets, our tribe. That tribe keeps those inside to remain so by creating means to keep others out. It keeps those inside safe and the bonds intact. This has always made it difficult for a religious tribe to love all people. This makes social progress nearly impossible. 
+
+Here is an exerpt from an address givin in 1918 which is as true today as then:
+
+*"""There are not a few circles in our day in which social progress and religious faith are regared as being in at least a semi-unfriendly relation. The leaders in the cause of the industrial classes indeed, like the Social Democrats and the Syndicalists, often thoroughly denounce religion. Workers for general social amelioration are frequently indifferent to religious faith. Great masses of people are convinced that religion does not help towards social progress and so regard it as at best a dead weight upon society. On the other hand, when churces or religious groups become vigorously active for social progress, the alarm is sure to be raised that their religion is becoming "mere social ethics." When social topics are considered in the pulpit or at the mid-week service, the fear is expressed that real religioon is being crowded out. When religious leaders throw themselves into social causes, they are suspected of having lost faith in "spiritual" forces"""*
+
+[https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents](https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents)
+
+
+
+
 ### **Colonialism, Making Indigenous People Feel Unhuman via Christianity** 
+
 Christianity and colonialism are often closely associated because Catholicism and Protestantism were the religions of the European colonial powers[46] and acted in many ways as the "religious arm" of those powers.[47] Historian Edward E. Andrews argues that although Christian missionaries were initially portrayed as "visible saints, exemplars of ideal piety in a sea of persistent savagery", by the time the colonial era drew to a close in the last half of the twentieth century missionaries became viewed as "ideological shock troops for colonial invasion whose zealotry blinded them."[48]
 
 Christianity is targeted by critics of colonialism because the tenets of the religion were used to justify the actions of the colonists.[49] For example, Michael Wood asserts that the indigenous peoples were not considered to be human beings and that the colonisers were shaped by "centuries of Ethnocentrism, and Christian monotheism, which espoused one truth, one time and version of reality."[50]
 
 [https://en.wikipedia.org/wiki/Criticism_of_Christianity](https://en.wikipedia.org/wiki/Criticism_of_Christianity)
+
+
 
 
 ### **Christian Nationalism Causes Racism and Bigotry**
@@ -56,6 +78,8 @@ My religiously nuanced professor laughed at the comment but we all knew that sai
 [https://academic.oup.com/socrel/article/79/2/147/4825283?login=true](https://academic.oup.com/socrel/article/79/2/147/4825283?login=true)
 
 
+
+
 ### **White Christians are More Racist than Whites**
 *Surveys [conducted by PRRI in 2018](https://www.prri.org/research/partisan-polarization-dominates-trump-era-findings-from-the-2018-american-values-survey/) found that white Christians — including evangelical Protestants, mainline Protestants and Catholics — are nearly twice as likely as religiously unaffiliated whites to say the killings of Black men by police are isolated incidents rather than part of a pattern of how police treat African Americans.*
 
@@ -63,7 +87,12 @@ My religiously nuanced professor laughed at the comment but we all knew that sai
 
 [https://www.nbcnews.com/think/opinion/racism-among-white-christians-higher-among-nonreligious-s-no-coincidence-ncna1235045](https://www.nbcnews.com/think/opinion/racism-among-white-christians-higher-among-nonreligious-s-no-coincidence-ncna1235045)
 
+
+
+
 ### [<< Christianity the Religion of your Oppression](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Christianity-The-Religion-Of-Your-Oppression.html)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Rapture Anxiety >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/Rapture-Anxiety.html)
+
+
 
 
 # Letter Sections
