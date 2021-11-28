@@ -27,7 +27,7 @@ Religion is made to create a strong tribe. As described in the [Grooming and Con
 *Based on strong relations of proximity and kinship, as well as a relations based on the mutual survival of both the individual members of the tribe and for the tribe itself, members of a tribe tend to possess a strong feeling of identity. Objectively, for a customary tribal society to form there needs to be ongoing customary organization, enquiry and exchange. However, intense feelings of common identity can lead people to feel tribally connected.<sup><a href="https://en.wikipedia.org/wiki/Tribalism#cite_note-8">[8]</a></sup>*
 
 
-### **Christianity is the Main Cause of Racism and Bigotry for the Western World**
+### **Christian Nationalism Causes Racism and Bigotry**
 
 ![](/assets/images/whitechristiannationalism.png)
 
