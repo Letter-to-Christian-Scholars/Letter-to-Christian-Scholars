@@ -39,7 +39,7 @@ From the above, I would argue that it is very difficult for a tribe to change. W
 
 Here is an exerpt from an address givin in 1918 which is as true today as then:
 
-*"""There are not a few circles in our day in which social progress and religious faith are regarded as being in at least a semi-unfriendly relation. The leaders in the cause of the industrial classes indeed, like the Social Democrats and the Syndicalists, often thoroughly denounce religion. Workers for general social amelioration are frequently indifferent to religious faith. Great masses of people are convinced that religion does not help towards social progress and so regard it as at best a dead weight upon society. On the other hand, when churces or religious groups become vigorously active for social progress, the alarm is sure to be raised that their religion is becoming "mere social ethics." When social topics are considered in the pulpit or at the mid-week service, the fear is expressed that real religioon is being crowded out. When religious leaders throw themselves into social causes, they are suspected of having lost faith in "spiritual" forces"""*
+*"""There are not a few circles in our day in which social progress and religious faith are regarded as being in at least a semi-unfriendly relation. The leaders in the cause of the industrial classes indeed, like the Social Democrats and the Syndicalists, often thoroughly denounce religion. Workers for general social amelioration (change) are frequently indifferent to religious faith. Great masses of people are convinced that religion does not help towards social progress and so regard it as at best a dead weight upon society. On the other hand, when churches or religious groups become vigorously active for social progress, the alarm is sure to be raised that their religion is becoming "mere social ethics." When social topics are considered in the pulpit or at the mid-week service, the fear is expressed that real religion is being crowded out. When religious leaders throw themselves into social causes, they are suspected of having lost faith in "spiritual" forces"""*
 
 [Eugene W Lyman, Harvard Theological Review April 1914](https://www.jstor.org/stable/1507433?seq=1#metadata_info_tab_contents)
 
@@ -67,7 +67,7 @@ I remember a comment while in college at a very christian university. It was a p
 
 *Is it possible to be a good christian AND a democrat?*
 
-My religiously nuanced professor laughed at the comment but we all knew that said professor was not *all in* with christianity. If you look at American politics (the only kind I know well) the only Christians on the democrat side are nuanced whites or those from minorities. In other words, outcasts of the white christian tribe. 
+My religiously nuanced professor laughed at the comment but we all knew that said professor was not *all in* with christianity. If you look at American politics (the only kind I know well) the only Christians on the social progress side (Democrat) are nuanced whites or those from minorities. In other words, outcasts of the white christian tribe. 
 
 *"Why did Americans vote for Donald Trump in the 2016 Presidential election? Social scientists have proposed a variety of explanations, including economic dissatisfaction, sexism, racism, Islamophobia, and xenophobia. The current study establishes that, independent of these influences, voting for Trump was, at least for many Americans, a symbolic defense of the United States’ perceived Christian heritage"*
 
