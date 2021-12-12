@@ -10,7 +10,7 @@ How do I believe the New Testament when it contradicts itself
 
 ## **Why this is important to me:**
 
-The Bible is the cornerstone of Christianity. The stories inside it have defined the different christian religions. It is supposed to be the word of God. It is hard to believe in such a book when if it contradicts itself a lot
+The Bible is the cornerstone of Christianity. The stories inside it have defined the different christian religions. It is supposed to be the word of God. It is hard to believe in such a book when it contradicts itself a lot
 
 The below examples were collated by:
 
