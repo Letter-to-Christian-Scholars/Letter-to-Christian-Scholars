@@ -28,7 +28,7 @@ Two hundred and sixteen thousand. By 2,900-3,200 abusers. That is 600 people per
 
 As of this writing it has been 36 years after the first catholic sex scandal report. In those 36 years the Catholic church has seen 17,000 complaints in the USA alone. They have paid $4 billion to victims. 
 
-The most common response is to be surprised that it is still happening. And then try to reduce the punishment in court.
+The most common response by the Catholic Church is to be surprised that it is still happening. And then try to reduce the abusers punishment in court.
 
 [https://en.wikipedia.org/wiki/Catholic_Church_sex_abuse_cases_in_the_United_States](https://en.wikipedia.org/wiki/Catholic_Church_sex_abuse_cases_in_the_United_States)
 
