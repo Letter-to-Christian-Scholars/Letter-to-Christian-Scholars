@@ -38,7 +38,9 @@ How can I believe any story that was written by 3rd person accounts. In fact, th
 
 ## The TOP OLD TESTAMENT Stories Sorted By Years of Heresay Before They Were Written
 
-Looking at this list, the stories written in real time are the boring stories. All of the juicy stories, the stories that Christianity depends on and has built its backbone and basis from are written with hundreds to thousands of years of heresay. These stories are literally no different than someone in our time writing about King Authur. Building a religion upon these Old Testament stories back then would be like someone building a religion built around King Authur's Lady of the Lake in this day. 
+Looking at this list, the stories written in real time are the boring stories. All of the juicy stories, the stories that Christianity depends on and has built its backbone and basis from are written with hundreds to thousands of years of heresay. 
+
+These stories are literally no different than someone in our time writing about King Authur. Building a religion upon these Old Testament stories back then would be like someone building a religion built around King Authur's Lady of the Lake in this day. How can I trust these Old Testament stories?
 
 The following are the top stories of the Old Testament as defined by [biblesociety.org](https://www.biblesociety.org.uk/explore-the-bible/bible-articles/famous-stories-in-the-bible/). The time differences are from [Dating the Bible](https://en.wikipedia.org/wiki/Dating_the_Bible)
 
