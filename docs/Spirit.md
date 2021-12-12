@@ -9,7 +9,7 @@ How can I trust the Spirit consistently
 
 I know that an answer to all of these questions will be 'you will know by the Spirit.' If I knew how to use it then I could consider that as an option. Finding the best practices for the spirit is really hard
 
-We say that we each have it differently. 'Everyone feels it differently.' I am confused by this but I respect the answer and will only ask about deeper questions
+We say that we each have it differently. 'Everyone feels it differently.' I am confused by this but I respect the answer. The below comments ignore 'everyone feels it differently' and focuses on other aspects of the spirit
 
 
 ## **Humans brains are programmed to NOT change our minds**
