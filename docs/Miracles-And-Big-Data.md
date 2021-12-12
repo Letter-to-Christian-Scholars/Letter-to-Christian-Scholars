@@ -58,7 +58,7 @@ There is no bias in who can and cannot use intuition but we know that it is a tr
 
 It is important to note that every human has the ability to use intuition, there are no specific groups that have more intuitive power than others. In other words, Christianity does not have more intuition abilities
 
-_Researchers devised a technique to measure intuition. After using this method, they found evidence that people can[ use their intuition](https://www.livescience.com/18850-military-sixth-sense-soldiers-intuition.html)to make faster, more accurate and more confident decisions, according to the findings, published online in April in the journal Psychological Science._
+_Researchers devised a technique to measure intuition. After using this method, they found evidence that people can[ use their intuition](https://www.livescience.com/18850-military-sixth-sense-soldiers-intuition.html) to make faster, more accurate and more confident decisions, according to the findings, published online in April in the journal Psychological Science._
 
 _The study shows that intuition does, indeed, exist and that researchers can measure it, said Joel Pearson, an associate professor of psychology at the University of New South Wales in Australia and the lead author of the study. [[Top 10 Mysteries of the Mind](https://www.livescience.com/11337-top-10-mysteries-mind.html)]_
 
