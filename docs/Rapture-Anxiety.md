@@ -19,7 +19,7 @@ How healthy is that for them? Looking at the other parts of this letter, does an
 
 ## **Tweets**
 
-Originally collated by https://www.patheos.com/blogs/daylightatheism/2017/12/raptureanxiety-evangelical-torture-mind/
+Originally collated by [patheos.com](https://www.patheos.com/blogs/daylightatheism/2017/12/raptureanxiety-evangelical-torture-mind/)
 
 *At 51, I am still working in therapy to overcome the sense instilled by Fundamentalism that I am inherently evil and unredeemable.  Apologized to God constantly for so many years, fueled by[ #RaptureAnxiety](https://twitter.com/hashtag/RaptureAnxiety?src=hashtag_click) and fear of Hell.* [Tweet](https://twitter.com/ManyHatted/status/939787381007192064?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E939787381007192064%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.patheos.com%2Fblogs%2Fdaylightatheism%2F2017%2F12%2Fraptureanxiety-evangelical-torture-mind%2F)
 
