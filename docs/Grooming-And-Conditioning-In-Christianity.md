@@ -68,7 +68,7 @@ Fishing abuses a fishes natural instinct. Their gut feeling of how they eat. Dog
 
 ## **This is my theory based on everything above. No scientific reason**
 
-It is honestly a very ingenious cycle. It sounds like something that requires thought to create, and it does.
+It is honestly a very ingenious cycle. It sounds like something that requires thought to create, and it does. Think of a narcist who gains power, their methods follow every one of these below steps
 
 
 
