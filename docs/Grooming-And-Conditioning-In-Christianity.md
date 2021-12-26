@@ -19,6 +19,10 @@ It is not healthy behavior. It creates a culture of shaming and fear. There is a
 
 ### **Grooming/Conditioning Tactics Used**
 
+Darrel Ray at the [Conference of  Religious Trauma 2021](https://pheedloop.com/CORT/virtual/?code=ATTFDVURHG7DB3Q5O77VJRE6XLEZ&page=channels&section=SES1UJ3J6X8H4BPVJ)
+
+"Lets look at the most basic concept in religion. The notion of sin. Embedded in the concepts of sin are the roots of all religous abuse" 
+
 ![](/assets/images/relabeling.png)
 
 ![](/assets/images/pastor.png)
