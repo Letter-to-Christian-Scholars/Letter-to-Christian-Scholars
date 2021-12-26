@@ -66,6 +66,23 @@ As seen above, dogmatic rules are built to make us feel small and dependent on a
 Fishing abuses a fishes natural instinct. Their gut feeling of how they eat. Dogma abuses a person's natural instinct. Their gut feeling of trusting a leader
 
 
+## **Thought Provoking Quotes from The God Virus**
+
+Darrel Wayne Ray (born August 24, 1950) is an American organizational psychologist. After meeting with literally 1000's of individuals who have suffered from religious trauma he wrote the book "The Good Virus" discussing the negative components to religion. Below are a a few quotes:
+
+
+“Religion does three things quite effectively: divides people, controls people, deludes people.” -Carlespie Mary Alice”
+
+“Simply disabling specific critical thinking skills is all that is necessary for the god virus.”
+
+“The chains men bear they forged themselves. Strike off their chains and they will weep for their lost security.” This”
+
+“People with high dependency needs have difficulty standing up to this level of social sanction. The more dependent, the less able they are to use their native intelligence. They depend instead on the word of religious authority.”
+
+“Nothing seems more pitiable than otherwise intelligent people gathering every Sunday to struggle ever so hard to understand something that is unintelligible.”
+
+
+
 ## **This is my theory based on everything above. No scientific reason**
 
 It is honestly a very ingenious cycle. It sounds like something that requires thought to create, and it does. Think of a narcist who gains power, their methods follow every one of these below steps
