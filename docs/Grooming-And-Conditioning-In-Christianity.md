@@ -29,6 +29,8 @@ Dr. Darrel Ray at the [Conference of  Religious Trauma 2021](https://pheedloop.c
 
 [https://nakedpastor.medium.com/why-the-church-is-the-perfect-culture-for-spiritual-abuse-7caeb2d6b472](https://nakedpastor.medium.com/why-the-church-is-the-perfect-culture-for-spiritual-abuse-7caeb2d6b472)
 
+![](/assets/images/indoctrinationjourneyfree.jpeg)
+[https://journeyfree.org/wp-content/uploads/A-GRAPH-Childhood-Indoctrination-color.jpg](https://journeyfree.org/wp-content/uploads/A-GRAPH-Childhood-Indoctrination-color.jpg)
 
 ## **Abuse Characteristics - Ronald Enroths**
 
