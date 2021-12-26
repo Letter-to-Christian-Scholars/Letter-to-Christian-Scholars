@@ -68,7 +68,7 @@ Fishing abuses a fishes natural instinct. Their gut feeling of how they eat. Dog
 
 ## **Thought Provoking Quotes from The God Virus**
 
-Darrel Wayne Ray (born August 24, 1950) is an American organizational psychologist. After meeting with literally 1000's of individuals who have suffered from religious trauma he wrote the book "The Good Virus" discussing the negative components to religion. Below are a a few quotes:
+Darrel Wayne Ray (born August 24, 1950) is an American organizational psychologist. After meeting with literally 1000's of individuals who have suffered from religious trauma he wrote the book ["The Good Virus"](https://www.goodreads.com/work/quotes/6293990-the-god-virus-how-religion-infects-our-lives-and-culture) discussing the negative components to religion. Below are a a few quotes:
 
 
 “Religion does three things quite effectively: divides people, controls people, deludes people.” -Carlespie Mary Alice”
