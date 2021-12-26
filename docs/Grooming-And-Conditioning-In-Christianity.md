@@ -19,7 +19,7 @@ It is not healthy behavior. It creates a culture of shaming and fear. There is a
 
 ### **Grooming/Conditioning Tactics Used**
 
-Darrel Ray at the [Conference of  Religious Trauma 2021](https://pheedloop.com/CORT/virtual/?code=ATTFDVURHG7DB3Q5O77VJRE6XLEZ&page=channels&section=SES1UJ3J6X8H4BPVJ)
+Dr. Darrel Ray at the [Conference of  Religious Trauma 2021](https://pheedloop.com/CORT/virtual/?code=ATTFDVURHG7DB3Q5O77VJRE6XLEZ&page=channels&section=SES1UJ3J6X8H4BPVJ)
 
 "Lets look at the most basic concept in religion. The notion of sin. Embedded in the concepts of sin are the roots of all religous abuse" 
 
@@ -72,7 +72,7 @@ Fishing abuses a fishes natural instinct. Their gut feeling of how they eat. Dog
 
 ## **Thought Provoking Quotes from The God Virus**
 
-Darrel Wayne Ray (born August 24, 1950) is an American organizational psychologist. After meeting with literally 1000's of individuals who have suffered from religious trauma he wrote the book ["The Good Virus"](https://www.goodreads.com/work/quotes/6293990-the-god-virus-how-religion-infects-our-lives-and-culture) discussing the negative components to religion. Below are a a few quotes:
+Dr. Darrel Wayne Ray (born August 24, 1950) is an American organizational psychologist. After meeting with literally 1000's of individuals who have suffered from religious trauma he wrote the book ["The Good Virus"](https://www.goodreads.com/work/quotes/6293990-the-god-virus-how-religion-infects-our-lives-and-culture) discussing the negative components to religion. Below are a a few quotes:
 
 
 “Religion does three things quite effectively: divides people, controls people, deludes people.” -Carlespie Mary Alice”
