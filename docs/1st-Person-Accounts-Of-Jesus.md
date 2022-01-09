@@ -5,7 +5,7 @@
 # **1st Person Accounts Of Jesus**
 ## **Central Question:**
 
-What exactly are the Four Gospels
+Are the Four Gospels an actual history or fables told as history?
 
 
 
@@ -15,7 +15,7 @@ I understand the importance of faith. I feel that there needs to be some basis t
 
 The "Four Gospels" are the central authority for this basis. The Four Gospels are where we learn about the sacrifice Christ did for everyone. It is where we learn that Christ is the Savior
 
-Luke 2 is read throughout the world every December 24th. The Beatitudes define the culture. His miracles give Christians hope and the relationship with John the Baptist proves that the Old Testament prophecy was fulfilled. 
+Luke 2 is read throughout the world every December 24th. The Beatitudes define the western worlds culture. His miracles give Christians hope and the relationship with John the Baptist proves that the Old Testament prophecy was fulfilled. 
 
 
 
@@ -36,7 +36,7 @@ They reject the traditional ascription to Mark the Evangelist, the companion of 
 
 
 
-## **The Other Four Gospels Copy Mark**
+## **The Other Four Gospels are Written Generations after Christ**
 
 The other Four Gospels are all written after Mark and copy much of the contents in Mark. Here is a chart showing the similarities between all of the Gospels. The best chance for an eyewitness account of Christ is via Mark. 
 
