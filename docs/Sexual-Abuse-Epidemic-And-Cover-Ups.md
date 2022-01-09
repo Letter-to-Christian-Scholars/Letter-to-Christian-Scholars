@@ -80,7 +80,7 @@ Tchividjian says sexual abuse in evangelicalism rivals the Catholic Church scand
 [https://www.washingtonpost.com/news/posteverything/wp/2018/05/31/feature/the-epidemic-of-denial-about-sexual-abuse-in-the-evangelical-church/](https://www.washingtonpost.com/news/posteverything/wp/2018/05/31/feature/the-epidemic-of-denial-about-sexual-abuse-in-the-evangelical-church/)
 
 
-### **Wade Mullen Study finds 192 publicized cases against children in Just 2 years**
+### **192 Publicized Pedophile Cases Against Religious Leaders in Just 2 years**
 
 Wade Mullen, the director of the M.Div. program at Capital Seminary & Graduate School, looked into this as a part of his PhD dissertation.
 
@@ -89,7 +89,7 @@ He found 192 instances of public abuse in two years (2016 and 2017) He only coun
 [https://wadetmullen.com/what-ive-observed-when-institutions-try-to-apologize-and-how-they-can-do-better/](https://wadetmullen.com/what-ive-observed-when-institutions-try-to-apologize-and-how-they-can-do-better/)
 
 
-### **Bob Jones University Cover Ups**
+### **Bob Jones University Sexual Abuse Cover Up Culture**
 
 Wade's  study[ showed](https://www.nytimes.com/2014/12/12/us/bob-jones-university-sex-assault-victim-study.html?_r=1) that 56 percent of the 381 respondents who reported having knowledge of the school’s handling of abuse (a group that included current and former students, as well as employees) believed that BJU conveyed a “blaming and disparaging” attitude toward victims.
 
