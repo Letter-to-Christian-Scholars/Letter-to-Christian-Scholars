@@ -5,7 +5,7 @@
 # Biblical History and Science
 ## Central Question:
 
-How do I process the drastic differences in the history written in the Bible and artifacts showing human history?
+How do I process these human artifacts that are older than the oldest Bible story? (written 6000 years ago)
 
 
 ## Why this is important to me:
