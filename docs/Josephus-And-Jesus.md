@@ -5,8 +5,7 @@
 # **Josephus and Jesus**
 ## **Central Question:**
 
-Was Josephus a contemporary of Jesus and if so did he say anything interesting about Jesus?
-
+Should I base any of my faith in Christ on Josephus's works?
 
 ## **Why this is important to me:**
 
