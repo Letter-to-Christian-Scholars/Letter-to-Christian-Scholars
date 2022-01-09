@@ -16,21 +16,21 @@ It seems so cruel. Even if a religion is the most true religion. It hurts me to 
 And when I think of Christian history, literally every single group (except maybe a handful of groups in Rome) are Christians due to oppression
 
 
-## **Constantine starts the Christian trend lightly**
+## **Constantine Starts the Christian Opression Trend lightly, to Gain More Control of His Empire**
 
 Constantine required those who had not converted to Christianity to pay for the new Rome city.<sup><a href="https://en.wikipedia.org/wiki/Constantine_the_Great_and_Christianity#cite_note-MacMullan49-28">[28]</a></sup> Christian chroniclers tell that it appeared necessary to Constantine "to teach his subjects to give up their rites ... and to accustom them to despise their temples and the images contained therein,"<sup><a href="https://en.wikipedia.org/wiki/Constantine_the_Great_and_Christianity#cite_note-30">[30]</a></sup> This led to the closure of temples because of a lack of support, their wealth flowing to the imperial treasure;<sup><a href="https://en.wikipedia.org/wiki/Constantine_the_Great_and_Christianity#cite_note-MacMullan50-31">[31]</a></sup> Constantine did not need to use force to implement this.<sup><a href="https://en.wikipedia.org/wiki/Constantine_the_Great_and_Christianity#cite_note-MacMullan49-28">[28]</a></sup>
 
 The Roman empire is known to accept many religions. The oppression in each country came after the empire fell.
 
 
-## **Poland Citizens Fought the Most Against Christianity, Yet Oppression Still Prevailed**
+## **Poland Oppressed its Citizens into Christianity**
 
 In adopting Christianity as the state religion, Mieszko I sought to achieve several personal goals.<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-bardach53-54-5">[5]</a></sup> He saw Poland's baptism as a way of strengthening his hold on power, as well as using it as a unifying force for the Polish people.<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-bardach53-54-5">[5][8]</a></sup> It replaced several smaller cults with a single, central one, clearly associated with the royal court.<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-K%C5%82oczowski2000-7">[7]</a></sup>
 
 Although at first the Christian religion was "unpopular and alien", Mieszko's baptism was highly influential<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-LukowskiZawadzki2006-3">[3]</a></sup> but needed to be enforced by the state, and ran into some popular opposition, including[ an uprising in the 1030s](https://en.wikipedia.org/wiki/Pagan_reaction_in_Poland) (particularly intense in the years of 1035–1037).<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-bardach53-54-5">[5][9]</a></sup> Nonetheless, by that time Poland had won recognition as a proper European state, from both the papacy and the[ Holy Roman Empire](https://en.wikipedia.org/wiki/Holy_Roman_Empire).<sup><a href="https://en.wikipedia.org/wiki/Christianization_of_Poland#cite_note-Prazmowska2011-11">[11]</a></sup>
 
 
-## **Each British Ruler Persecuted Opposing Religions**
+## **Britian Oppressed its Citizens into Christianity**
 
 Henry VIII established the[ Church of England](https://en.wikipedia.org/wiki/Church_of_England) after his split with the Pope. However, England stayed much the same, even with the new state religion. Its doctrines and practices were, at first, very similar to those of the Catholic Church. The king did not establish the[ Church of England](https://en.wikipedia.org/wiki/Church_of_England) as a result of religious differences with Catholicism; his motives were mainly political, and he persecuted radical Protestants who threatened his church.<sup><a href="https://en.wikipedia.org/wiki/Protestantism_in_the_United_Kingdom#cite_note-Ferm-6">[6]</a></sup>
 
@@ -41,7 +41,7 @@ Under the next monarch, however, Protestants were persecuted once again.[ Queen 
 [https://en.wikipedia.org/wiki/Protestantism_in_the_United_Kingdom](https://en.wikipedia.org/wiki/Protestantism_in_the_United_Kingdom)
 
 
-## **Russian Oppressed into Christianity**
+## **Russian Oppressed its Citizens into Christianity**
 
 Princess[ Olga of Kiev](https://en.wikipedia.org/wiki/Olga_of_Kiev) was the first ruler of[ Kievan Rus'](https://en.wikipedia.org/wiki/Kievan_Rus%27) who became a Christian. Her grandson,[ Vladimir](https://en.wikipedia.org/wiki/Vladimir_the_Great) of Kiev, made Rus' officially a Christian state. The official[ Christianization of Kievan Rus'](https://en.wikipedia.org/wiki/Christianization_of_Kievan_Rus%27) is widely believed to have occurred in 988 AD, when Prince Vladimir was[ baptised](https://en.wikipedia.org/wiki/Baptism) himself and ordered his people to be baptised by the priests from the Eastern Roman Empire
 
