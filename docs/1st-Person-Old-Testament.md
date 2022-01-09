@@ -8,7 +8,7 @@
 
 
 ## Central Question:
-What can we believe from the Old Testament
+Is every interesting story in the Old Testament just a fable?
 
 
 
