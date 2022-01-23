@@ -1,11 +1,11 @@
 [Preface >>](https://letter-to-christian-scholars.github.io/Letter-to-Christian-Scholars/preface.html)
 
 
-## Hey (names removed),
+## Hey, please read this before you start,
 
-First of all, I appreciate your time in looking into this.  Everyone's time is precious and thank you for spending it with me on this
+First of all, I appreciate your time in looking into this.  Everyone's time is precious and thank you for spending it with me on this, it shows that you care about me and I appreciate that
 
-Those closest to me are concerned that my faith questions happened without talking to someone in the church. They asked me to reach out to you. I think that the church deserves a chance to discuss my questions. I am willing to listen
+I originally wrote this for specific people but I am realizing how it gives everyone in my life more peace. Arguing these points only brings conflict into our lives and I do not like that. The reasons why I left Christianity are all right here. I currently update this often with changes to my thoughts. At this point I continue to update this to make our conversations easier, read this at your pace, come to your own conclusions, I am happy to talk about your thoughts afterwards. 
 
 I want to be told that my questions are 'dumb' for lack of a better word. Staying a christian would be easier than leaving. I know that you may not believe this but it is true. My entire support system is in that fold and it is so frustrating having to be the odd one out. I want to have those deep conversations that we used to have without being so different in my views. I want to be told I am wrong
 
