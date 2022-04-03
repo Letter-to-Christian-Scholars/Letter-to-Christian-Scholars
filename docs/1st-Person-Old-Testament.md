@@ -18,6 +18,10 @@ In my mind, to believe in Jesus requires believing the Old Testament. There are 
 
 The most important of items established in the Old Testament is the prophecy of a Savior. In my mind it is the key reason to believe in Jesus. He was fulfilling prophecy
 
+That said, few of these stories appear to be written in 1st person. The most interesting ones are written literally hundreds of years after the supposed moment in history. Some are even taken from older traditions via other ancient religions. A similar scenario would be taking the current movies of King Authur as fact as we have zero 1st person written history of King Authur
+
+
+
 # Table of Contents
 1. [Ancient Manuscript Dating](#ancient-manuscript-dating)
 2. [Every Interesting Old Testament Story Is Like the Game of Telephone](#every-interesting-old-testament-story-is-like-the-game-of-telephone)
@@ -96,8 +100,6 @@ The following are the top stories of the Old Testament as defined by [biblesocie
 | 0                                                                                                         | [Amos’ condemnation of the king (Amos 7.10–17)](https://www.biblesociety.org.uk/explore-the-bible/read/eng/GNB/Amos/7/highlight:10/)                        | No, too ambiguous to assure it is fulfilled                                                         | 745                                                  | 745                                       |                                                                                                                                                |
 
 
-*Almost every scholar does not believe any of these*
-*Most stories were made to build myths that assist a current political need*
 
 
 
