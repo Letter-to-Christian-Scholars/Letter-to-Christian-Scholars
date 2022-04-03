@@ -55,7 +55,7 @@ Within the German Evangelical Church the pro-Nazi “German Christian” (_Deuts
 [https://www.swarthmore.edu/friends-historical-library/why-religions-facilitate-war-and-how-religions-facilitate-peace](https://www.swarthmore.edu/friends-historical-library/why-religions-facilitate-war-and-how-religions-facilitate-peace)
 
 
-## **Hate in the name of appeasing Christ before his return** ##
+## **Hate in the Name of Appeasing Christ Before His Return** ##
 
 
 The most orthodox christians I know, the ones with the best Bible knowledge and who follow its direction the closet are the most hateful people I know
