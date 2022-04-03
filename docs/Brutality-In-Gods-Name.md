@@ -11,7 +11,7 @@ Why is brutality always associated with the most christian people I know
 
 ## **Why this is important to me:**
 
-There is always another reason, but I keep seeing signs of christianity in brutal news articles. It is never directly from a christian group. It is almost like the brutality and the christian values want to pretend they are not together but I keep seeing them together
+There is always another reason, but I keep seeing signs of christianity in brutal news articles. The most devoted and Bible-centric Christians always seem to have the most brutal and hate filled articles on them, as if christianity is the reason they are so full of brutality
 
 Christianity is supposed to make people love others more. I should see less christianity in brutal news articles but instead I think that I see more
 
@@ -53,6 +53,39 @@ Within the German Evangelical Church the pro-Nazi “German Christian” (_Deuts
 "Two recent books, Chris Hedges, _War Is a Force that Gives us Meaning_ and Andrew Bacevich, _The New American Militarism_, discuss our nation's love of war and both link it to religion.   "The moral certitude of the state in wartime is a kind of fundamentalism.   And the dangerous messianic brand of religion, one where self-doubt is minimal, has increasingly come to color the modern world of Christianity, Judaism, and Islam.(1) Bacevich relates America's new thirst for militarism to the rise of militant evangelicalism's post Vietnam love affair with Israel, reinterpretation of just war of contemporary life.   The result was to give "moral legitimacy" to "military activism."
 
 [https://www.swarthmore.edu/friends-historical-library/why-religions-facilitate-war-and-how-religions-facilitate-peace](https://www.swarthmore.edu/friends-historical-library/why-religions-facilitate-war-and-how-religions-facilitate-peace)
+
+
+## **Hate in the name of appeasing Christ before his return** ##
+
+
+The most orthodox christians I know, the ones with the best Bible knowledge and who follow its direction the closet are the most hateful people I know
+
+The Bible makes it clear what happens to those who lose their way with religion. They are deceived by the devil and have a future of endless torment 
+
+Romans 1:18-28
+18The wrath of God is being revealed from heaven against all the godlessness and wickedness of people, who suppress the truth by their wickedness, 19since what may be known about God is plain to them, because God has made it plain to them
+...
+21For although they knew God, they neither glorified him as God nor gave thanks to him, but their thinking became futile and their foolish hearts were darkened. 22Although they claimed to be wise, they became fools
+...
+28Furthermore, just as they did not think it worthwhile to retain the knowledge of God, so God gave them over to a depraved mind, so that they do what ought not to be done. 29They have become filled with every kind of wickedness, evil, greed and depravity. They are full of envy, murder, strife, deceit and malice. They are gossips, 30slanderers, God-haters, insolent, arrogant and boastful; they invent ways of doing evil; they disobey their parents; 31they have no understanding, no fidelity, no love, no mercy.
+
+A true believer has to struggle having people like that around them. There is a best selling book series "Left Behind" that personifies this fear in America during the Second Coming. 
+
+The Left Behind novels have sold tens of millions of copies while spawning an “End Times” cult, or rather egging it on. In this world of harbingers of doom Trump's conspiracy theory-laden self-made apocalypse fits with the evangelical's perpetual hysteria perfectly.
+
+Trump's anti-everyone-but-us platform mirrors the evangelical view of the world. God will be revenged on anyone not like us... especially if they "threaten" Israel. There are true believers and everyone else. And God is going to burn the "other" -- forever.
+
+[https://www.huffpost.com/entry/trump-and-the-left-behind-evangelicals-how-they_b_58ff88c4e4b0c13feaa5c8e3](https://www.huffpost.com/entry/trump-and-the-left-behind-evangelicals-how-they_b_58ff88c4e4b0c13feaa5c8e3)
+
+
+Matthew 24:9-14
+9 “Then they will deliver you up to tribulation and put you to death, and you will be hated by all nations for my name's sake. 10 And then many will fall away and betray one another and hate one another. 11 And many false prophets will arise and lead many astray. 12 And because lawlessness will be increased, the love of many will grow cold. 13 But the one who endures to the end will be saved. 14 And this gospel of the kingdom will be proclaimed throughout the whole world as a testimony to all nations, and then the end will come
+
+
+At first glance I want to think that the brutal and venomous hate group Proud Boys is an oddity that does not display true Christian values but reading the above, I have to question if the truest of Christians is the Proud Boys
+
+Proud Boys: ["an opportunistic hate group whose message of white male chauvinism is infused with religious and nationalist symbols"](https://www.pdcnet.org/collection/show?id=jrv_2021_0009_0001_0012_0032&file_type=pdf)
+
 
 
 ## **Mass Shootings almost always are Christian Men**
