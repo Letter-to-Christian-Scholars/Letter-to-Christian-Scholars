@@ -35,9 +35,21 @@ The most common response by the Catholic Church is to be surprised that it is st
 
 ### **LDS Church hid abuse for years**
 
+The Church of Jesus Christ of Latter Day Saints (Mormons) Sex Abuse Hotline is often used to cover up sexual abuse. All calls go directly to a legal team who tells the caller to NOT call local police and local sex abuse laws. Mormon leaders established the help line in 1995 and it operated not within its Department of Family Services, but instead in its Office of Risk Management, whose role is to protect the church and members from injury and liability in an array of circumstances, including fires, explosions, hazardous chemical spills and severe weather.
+
+Case after case has been ignored due to this policy. This is despite the incredible research in this article. When this story came out, the church published a 'this is a fake news' announcement which interestingly also shared how they are legally following policy. An interesting combination "The nature and the purpose of the Church’s help line was seriously mischaracterized in a recent Associated Press article." but also "The help line is just one of many safeguards put in place by the Church..."
+
+[https://apnews.com/article/Mormon-church-sexual-abuse-investigation-e0e39cf9aa4fbe0d8c1442033b894660?fbclid=IwAR0OjfBK-RMyC4-zDhKklchGpdAQs_0U0g9RRnHuDJ2Zu01_xvzq1H-j474](https://apnews.com/article/Mormon-church-sexual-abuse-investigation-e0e39cf9aa4fbe0d8c1442033b894660?fbclid=IwAR0OjfBK-RMyC4-zDhKklchGpdAQs_0U0g9RRnHuDJ2Zu01_xvzq1H-j474)
+[https://newsroom.churchofjesuschrist.org/article/church-offers-statement-help-line-abuse?fbclid=IwAR1BRBrVwKJmAMlxvf0dSMFQi-bH_WOXJsJfb0Ez0VtkZPZ1SeejQiHvB04](https://newsroom.churchofjesuschrist.org/article/church-offers-statement-help-line-abuse?fbclid=IwAR1BRBrVwKJmAMlxvf0dSMFQi-bH_WOXJsJfb0Ez0VtkZPZ1SeejQiHvB04)
+
+
+
 "In the seven lawsuits each representing seven different male victims, attorneys say church officials never notified authorities about abuse allegations. Public records show members of church-sponsored Boy Scout troops who were abused would tell church bishops about what they had experienced. The lawsuits allege bishops would then tell the victims to keep quiet so the church could conduct its own investigation. In the meantime, troop leaders and volunteers accused of sex abuse would be allowed to continue in their roles or be assigned to another troop, the suits said"
 
 [https://apnews.com/article/sexual-abuse-by-clergy-lawsuits-arizona-sexual-abuse-90d2cff3ef5668cfc28f3a3269c09b1c](https://apnews.com/article/sexual-abuse-by-clergy-lawsuits-arizona-sexual-abuse-90d2cff3ef5668cfc28f3a3269c09b1c)
+
+
+
 
 
 ### **BYU punished victims of sex abuse**
